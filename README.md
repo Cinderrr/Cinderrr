@@ -1,6 +1,5 @@
 <h5>Cinder</ h5>
 <p>
-Pronouns: Cunt <br />
 Fun fact: Cunt <br />
 Howdy. I'm Cinder. If you've found this you probably know me. Future billionaire. I just need to finish one of these projects. <br />
 Check out my sonas below <br />
